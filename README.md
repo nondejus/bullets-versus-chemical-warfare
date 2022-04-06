@@ -1,2 +1,4 @@
 # rbullets-versus-chemical-warfare
-staat der nederlanden 2002-2022
+
+# staat der nederlanden
+https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
